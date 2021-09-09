@@ -1,1 +1,4 @@
-Replace this with a list of your favorite things.
+* Game of Thrones
+* Inferno
+* Origin
+* You are a badass
